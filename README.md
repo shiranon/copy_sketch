@@ -1,3 +1,3 @@
-## imitate ikeryou's sketch
+## copy ikeryou's sketch
 
-学習用
+学習用写経
